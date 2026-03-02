@@ -94,6 +94,7 @@ Make sure to follow the [Code of Conduct](./CODE_OF_CONDUCT.md).
 
 Have suggestions or feedback? Feel free to reach out:  
 📧 Email: **ayoub.hammoudi05@gmail.com**  
+response within 24h :) 
 
 --- 
 
